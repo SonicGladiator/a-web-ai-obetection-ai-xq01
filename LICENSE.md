@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://SonicGladiator.github.io/a-web-ai-obetection-ai-xq01/ ) |
  |---------------------|----------------------:|
 
 
