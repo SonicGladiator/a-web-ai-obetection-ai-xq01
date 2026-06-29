@@ -1,4 +1,4 @@
-# 
+# Premium A web AI object detection temas. Com redes neurais e reconhecimento de imagens — otimizado para máximo desempenho.
 
 
 
